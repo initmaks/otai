@@ -1,3 +1,3 @@
-## Domain For Sale
+# ot.ai is for sale!
 
-Please contact via admin@ot.ai
+This domain is for sale. Please contact via admin@ot.ai with an offer.
